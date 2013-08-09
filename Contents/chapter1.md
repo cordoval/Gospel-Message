@@ -1,4 +1,5 @@
 #"El Senor anima a su pueblo""
+(transcription of http://www.craftitonline.com/sermon_archive/20012013.mp3)
 
 ##Hageo 2:1-9
 
